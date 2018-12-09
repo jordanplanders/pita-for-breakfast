@@ -81,3 +81,26 @@ Jordan
 
 P.S. I’m in an arm wrestling match with Google photos so the majority of mine may not show up until we stumble acrosss reliable internet.
 
+## Day 4
+
+ Day 4
+
+Armed with new knowledge of my camera (I didn’t get into it, but I spent some time pouring over the French manual for my camera and trying different combinations of buttons and settings until I figured out how to manually adjust the exposure on Day 3 night) we woke up at 5:20 to watch the sunrise from the warmth of bed :).  Beautiful. We could see hikers on the rock in the distance, and I felt a twinge of “I should be out there” but I also embraced the decadence of our window wall without much trouble. After breakfast we spent two hours on camels traveling back to our car. Heh. It’s possible two hours was an hour too many, but camels are ridiculous creatures and not something we can do everyday, so I reckon it’s good we got our fill.  Check out the video clips to get a taste of how awkward it is getting up and down ;).
+
+All but one sandal (sorry to report that) met us at our car, and we started off for the Dead Sea. We had not expected a scenic drive particularly as the prior drives had been a bit hit-or-miss, but this one had some mighty fine vistas and an early sighting of Israel and the Dead Sea. (For those keeping score at home, we were stopped by police once on our drive to our swimming spot and the policeman tried to get us to take on a couple of hitchhikers, but happily didn’t push very hard. Our final total is 5.)
+I may have driven Kevin a little nuts as I played name-that-vegetable as we drove by field after field and stand after stand, but he didn’t say anything; what a gentleman!
+
+The Dead Sea did not disappoint. For 15 JOD each we got an hour to change, race down to the beach, play in the water, shower and get back on our way. You all thought I might leave it at that...ha! But seriously, the Dead Sea was really neat. We found that not only could we float high enough in the water without effort to read a newspaper, but we could also be upright with shoulders clearly above the waterline without treading water! We covered ourselves with mud so I’m guessing there was definitely a Benjamin Button thing going, or would have been had we not aged several years driving through traffic into Amman...
+
+Back in the car, I started scrambling to find some place to eat.  Pushed by the desire to have a glass of wine with dinner, I  stumbled across a highly rated Lebanese restaurant and—bless him—Kevin was down.  We did finally struggle through rush hour traffic in and around Amman and make our way to the hotel. I kid you not though, we saw cars go the wrong way in open lanes of traffic only to push their ways back in at the end of the street. I did my best with google maps to try to keep the pain to a minimum, but props to Kevin for taking Jordanian driving by the horns.
+
+We did eventually make it to the hotel (I’m pretty sure that the last 300 meters took 6 minutes), showered properly (I’m also pretty sure it will take multiple showers to get all the salt off and probably a washing machine to get our bathing suits back to pre DS condition), and hit the streets (on foot!) on our way to dinner.  We paused awkwardly as we arrived at the restaurant, unclear about whether they would take us in our blue jeans and without a reservation (I think they were unclear too because they also paused, looked at each other, left, came back, conferred) but they eventually took us to a table in a room off the main room and what followed was delightful.  Our waiter, a fellow from Damascus with family in Oklahoma, refused to let us serve ourselves and at his hands (and those of this little man who would leap in and deposit hit puts on our bread plates) we had fattoush, hummus, a shawarma pie, a mixed grill plate and wine followed by candied fruits (pomelo peal, fig, apricot) and a huge fruit bowl (see photo to understand why we howled with laughter when he brought it). Anyway, it was an entire meal of swallows, smiles, and giggles as one of us after another tried to do something polite or enjoy something. As we walked back we passed a Bank of Jordan and discussed whether it would be worth the foreign transaction fees to have such an atm card...
+
+As I sit here, impressively full, in the common room of the Sydney Hotel (somewhere between a hotel and a hostel) I can still feel the spot on my chin where the water made contact.  The Dead Sea is quite a place. The camels are impressively awkward creatures. Tomorrow, like today, is likely to take my breath away.  Again.
+
+Photos here:
+https://photos.app.goo.gl/ZzcXLgPZBb9XC5zR8
+
+Until next time (and hopefully for sometime after that, but anyway),
+Jordan
+
