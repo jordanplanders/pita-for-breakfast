@@ -1,26 +1,6 @@
 # pita-for-breakfast
 Tales of our trip to Jordan and Egypt
 
-## Day 5
-
-Day 5
-
-There’s a song that has a line “I woke up in a car” and for whatever reason everytime Kevin and I talk about the morning of Day 5 it starts with “we woke up in Amman”... the weird things that happen in brains, eh?
-
-Breakfast was not the production that dinner on Night 4 was (and thank goodness), but was enjoyable and with it I experienced the second positive interaction with my camera (it’s been a nightmare getting photos from my camera to my phone to google photos) whereby it actually wirelessly transmitted all the camel photos (among others) when I asked it to, and on the first try! But I diverge...
-
-We packed up and headed out to a Roman amphitheater. We had heard it was neat, and only had time for a short jaunt, so we wove speedily along the sewing machine street which gave way to women’s clothing street and eventually a street or two with less commercial specificity. I kid you not though, there was a solid block of stores that specialized in sewing machines! Not exactly a surprise given we had walked a pet food block the night before on our way to dinner. We arrived at the amphitheater and proudly produced our Jordan passes (we were pleased that they were getting us into yet another site), and the man at the entrance took each of them, turned them over, folded them and purposefully stamped them... with his hand that did not contain a stamp :) We were tickled by the joking formality of this ritual, as we believe, was he. The amphitheater was quite impressive. You’ve probably seen the photos by this point, but I’m pretty sure the pitch was such that there were not bad seats in that house.
-
-It was a speedy visit because we were in a once-burned-thrice-shy mentality when it came to Amman traffic and wanted to make sure we returned the rental car and got to the airport on time. As it happens, when we got back to the hotel we found we had a bonus 40 minutes so we poked around nearby stores for a while (picked up a couple of Jordan mugs ;)) before heading out. You’ve already heard about traffic in Amman, but I’ll add here that we came across a recurring traffic structure that involved a round about with an underpass straightaway.
-
-Things went smoothly at the airport and aside from an unexpected flight path that avoided flying over or near Israel and an unexpected meal (a meal on a flight with only an hour fly time?!) there was nothing to write home about...as they say. We landed in Cairo and bought our visa stamps in U.S. dollars which was both handy because we hadn’t exchanged money yet, and interesting because it turns out they don’t accept local currency. I got stopped briefly at immigration for reasons we don’t understand (possibly something about my many names? Never know about these things, particularly with a language barrier) and then we headed to baggage claim where I fumbled around between “I forgot my password” and 2-factor authentication text messages (15 seconds is *barely* enough to get a text from Uber with a code and enter it, it turns out) trying to login to the Uber app (I had deleted it all together after the Uber stories came out, but for some reason I had reinstalled it, so at least we had that going for us). Fending off taxi drivers, we found our way to the B5 parking sign and to our ride.
-
-Ah, the ride. How do I do Cairo rush hour justice? There was even less adherence to lane lines and much more honking than Jordan (even during rush hour in Amman). That seems superficial though in comparison to the unpaved road connections and exits, people selling things in traffic, vehicles broken down everywhere and people milling about...and that was the freeway! The roads near the pyramids featured horses and rickshaws and camels as well a s the regular slough of pedestrians and taxis. Bonus was that our hotel is new, so nobody knows where it is, and was actually located down a dirt lane and around a corner in a place that a car couldn’t possibly have reached, so you can imagine that figuring that out and with a language barrier went about as smoothly as medium grade sand paper. A couple of people from the hotel came out to the last landmark (a Chinese food restaurant) and showed us the rest of the way.
-
-But! The roof terrace (not enclosed this time) had a fantastic view of the pyramids so after we had put down our stuff, we headed upstairs for what turned out to be a couple of HORRIBLE beers and a GREAT view of the sound and light show put on every night. Though intimidated by the twisting and turning streets and complicated social rules of the immediate part of world outside our hotel, we ventured out for dinner and enjoyed a fancy meal (Hummus, baba ganoush, pita, soup, salad, eggplant thing, chicken kabab, lamb and rice) for $16.
-
-Signing off for now,  
-Jordan
 
 ## Day 6 
 Tl;dr: we walked 10.5 miles and both left and safely returned to our hotel with quite a day of Cairo in the interim.
